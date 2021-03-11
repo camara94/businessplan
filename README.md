@@ -1,0 +1,3 @@
+# Créer un Business Plan
+
+Vous souhaitez créer votre entreprise ou développer votre société actuelle ? Avant de vous lancer, vous devrez rédiger un business plan. Que vous soyez entrepreneur ou conseiller expérimenté, Mike Figliuolo vous explique comment définir votre activité en étudiant le marché et en identifiant votre produit. Une fois votre produit ou service défini, il vous donne des conseils pour la création de votre stratégie commerciale, vos opérations quotidiennes, vos ressources humaines et vos prévisions financières. Vous pourrez consulter un exemple de business plan pour voir comment se déroule le développement d’une entreprise réelle.
